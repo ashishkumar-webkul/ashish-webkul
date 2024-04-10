@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **ashishkumarbhai.tester454@webkul.in**
 
-- ⚡ Fun fact **I think I have capability to handle any task with an ease.**
+- ⚡ Logoical fact **I think I have capability to handle any task with an ease.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
